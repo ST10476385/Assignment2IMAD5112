@@ -39,6 +39,7 @@ https://youtu.be/JcTIC2QZIy0?si=B06uJynkZb5jD1v4
 - @stringlabscreative. (n.d.). Peach Simple Travel Instagram Story. Canva. Available at: https://template.canva.com/EAEhlDaeDcg/4/0/900w-sLFj2vBiQS8.jpg (Accessed: 21 April 2025).
 
  Screenshots
+
  
  ![Screenshot_20250516_114323](https://github.com/user-attachments/assets/51f9494c-5f27-4731-9838-2163ea98e73f)
 ![Screenshot_20250516_114402](https://github.com/user-attachments/assets/2ab22916-324b-4d13-855a-c3163cd8efc5)
