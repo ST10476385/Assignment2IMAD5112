@@ -38,4 +38,13 @@ https://youtu.be/JcTIC2QZIy0?si=B06uJynkZb5jD1v4
 - @marissaabao. (n.d.). Brown and Gray Minimalist Travel Pinterest Pin. Canva. Available at: https://template.canva.com/EAE55q8PlDE/1/0/1067w-hHpLM9O2xuc.jpg (Accessed: 21 April 2025).
 - @stringlabscreative. (n.d.). Peach Simple Travel Instagram Story. Canva. Available at: https://template.canva.com/EAEhlDaeDcg/4/0/900w-sLFj2vBiQS8.jpg (Accessed: 21 April 2025).
 
+ Screenshots
  
+ ![Screenshot_20250516_114323](https://github.com/user-attachments/assets/51f9494c-5f27-4731-9838-2163ea98e73f)
+![Screenshot_20250516_114402](https://github.com/user-attachments/assets/2ab22916-324b-4d13-855a-c3163cd8efc5)
+![Screenshot_20250516_114607](https://github.com/user-attachments/assets/49e532ea-98d7-4503-a546-9f1e9be2d75d)
+![Screenshot_20250516_114633](https://github.com/user-attachments/assets/5d72e5a9-b31d-40d9-80eb-0b48720ef679)
+
+
+ 
+
